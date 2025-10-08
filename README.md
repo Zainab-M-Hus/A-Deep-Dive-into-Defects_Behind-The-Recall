@@ -15,11 +15,17 @@ Strengthen Supplier Oversight: Implement stricter and more frequent supplier aud
 Foster a Proactive Safety Culture: Build a company culture that prioritizes long-term safety and quality over short-term cost savings.
 
 Resources: 
-[https://www.instagram.com/moicbahrain?igsh=MThrZzN3Njh0bnY4dw==]
-[https://www.newsweek.com/product-recalls-rise-top-causes-revealed-2126294]
-[https://www.nhtsa.gov/sites/nhtsa.gov/files/documents/mvdefectsandrecalls_808795.pdf]
-[https://www.usatoday.com/recalls/automotive/NHTSA-25V245000/  - https://www.consumershield.com/articles/vehicle-recalls-by-manufacturer]
-[https://www.autoinsurance.com/research/car-recall-facts-statistics/]
-[https://www.attorneyjaviermarcos.com/vehicle-recalls-attorney-javier-marcos/]
+[https://www.instagram.com/moicbahrain?igsh=MThrZzN3Njh0bnY4dw==]  
+
+[https://www.newsweek.com/product-recalls-rise-top-causes-revealed-2126294]  
+
+[https://www.nhtsa.gov/sites/nhtsa.gov/files/documents/mvdefectsandrecalls_808795.pdf]  
+
+[https://www.usatoday.com/recalls/automotive/NHTSA-25V245000/  - https://www.consumershield.com/articles/vehicle-recalls-by-manufacturer]  
+
+[https://www.autoinsurance.com/research/car-recall-facts-statistics/]  
+
+[https://www.attorneyjaviermarcos.com/vehicle-recalls-attorney-javier-marcos/]  
+
 [https://www.sdvinsider.com/p/the-hidden-automotive-software-crisis]
 
