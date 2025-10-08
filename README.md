@@ -15,7 +15,6 @@ Strengthen Supplier Oversight: Implement stricter and more frequent supplier aud
 Foster a Proactive Safety Culture: Build a company culture that prioritizes long-term safety and quality over short-term cost savings.
 
 Resources: 
-
 [https://www.instagram.com/moicbahrain?igsh=MThrZzN3Njh0bnY4dw==]
 [https://www.newsweek.com/product-recalls-rise-top-causes-revealed-2126294]
 [https://www.nhtsa.gov/sites/nhtsa.gov/files/documents/mvdefectsandrecalls_808795.pdf]
